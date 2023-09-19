@@ -8,7 +8,7 @@ meu nome é emili santos
 
 ### Você entra em contato comigo 📫
 
-aparecida.santo.emili@escola.pr.gov.br
+aparecida.santos.emili@escola.pr.gov.br
 
 @emilly_santoss42
 
